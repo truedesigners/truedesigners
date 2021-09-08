@@ -1,5 +1,13 @@
 ### Hi there 👋
 
+Telegram, WhatsApp и Viber
++79221122633
+
+https://vk.com/truesale24
+https://www.linkedin.com/in/truesale24/
+https://www.fl.ru/users/truedesigners/
+
+
 <!--
 **truedesigners/truedesigners** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
