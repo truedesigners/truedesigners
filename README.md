@@ -12,6 +12,7 @@ https://www.linkedin.com/in/truesale24/
 
 https://www.fl.ru/users/truedesigners/
 
+[https://sun9-38.userapi.com/c856020/v856020362/b8e0c/h5hgQ30_fsc.jpg]
 
 <!--
 **truedesigners/truedesigners** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
