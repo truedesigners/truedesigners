@@ -11,7 +11,9 @@ https://vk.com/truesale24
 https://www.linkedin.com/in/truesale24/
 
 https://www.fl.ru/catalog/profile/1917360/
+
 https://www.fl.ru/users/truedesigners/
+
 https://freelance.ru/truedesigners
 
 https://www.behance.net/truedesignersru
